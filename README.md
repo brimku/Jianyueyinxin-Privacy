@@ -1,5 +1,3 @@
-# Jianyueyinxin-Privacy
-简乐音信App隐私政策
 # 简乐音信 隐私政策
 最后更新：2026年4月7日
 
